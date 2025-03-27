@@ -72,11 +72,19 @@ https://scholar.google.com/citations?user=_m5oQE4AAAAJ&hl=en&oi=sra
 Roman Urdu Translation:
 
 Anzurna Ya Rasool Allah ﷺ
+
+
 Anzurna Ya Habeeb Allah ﷺ
 
 Tu mera Siraaj hai, mere sar ka taaj hai.
+
+
 Sidrat se aage Arsh tak Aaqa teri Me’raaj hai.
+
+
 Tu Habeeb-e-Kibriya, tera do jahan pe raaj hai.
+
+
 Teri nigah-e-naaz ka har Ummati mohtaaj hai.
 
 Anzurna Ya Rasool Allah ﷺ
